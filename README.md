@@ -46,8 +46,8 @@
 
 ## 🔗 Connect With Me
 
-- 📧 [Email](mailto:your.email@iitd.ac.in)
-- 💼 [LinkedIn](https://linkedin.com/in/your-link)
+- 📧 [Email](mailto:meghwanshilovish@gmail.com)
+- 💼 [LinkedIn](https://www.linkedin.com/in/lovish-meghwanshi-13aa1a36b/)
 - 💻 [Fiverr](https://www.fiverr.com/lovishkumar07)
 - 🌐 Portfolio coming soon!
 
